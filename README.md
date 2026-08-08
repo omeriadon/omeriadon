@@ -2,6 +2,6 @@
 
 <br>
 
-I just do apple stuff
+I just do apple stuff mostly
 
-currently tweaking macos using ammonia
+currently tweaking macos using ammonia, and making timetable.
